@@ -1,0 +1,1 @@
+# AI-Mac-OS-i-OS-Android-skrypty-do-pisania
